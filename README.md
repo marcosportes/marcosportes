@@ -1,3 +1,3 @@
-- I'm currently learning about devops.
+- Eternal learner in technology
 - I fond computers, games, trekking e good food.
-- How to reach me: @marpojr in socials.
+- How to reach me: [Linkedin](https://www.linkedin.com/in/marcosportes/)
